@@ -1,0 +1,1 @@
+www.szal-art.pl

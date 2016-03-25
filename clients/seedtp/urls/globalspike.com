@@ -1,0 +1,1 @@
+globalspike.com

@@ -1,0 +1,1 @@
+sepetimden.com

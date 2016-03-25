@@ -1,0 +1,1 @@
+galerigadget.com

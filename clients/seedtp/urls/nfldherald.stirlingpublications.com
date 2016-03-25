@@ -1,0 +1,1 @@
+nfldherald.stirlingpublications.com

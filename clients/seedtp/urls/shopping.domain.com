@@ -1,0 +1,1 @@
+shopping.domain.com

@@ -1,0 +1,1 @@
+www.takaski.com

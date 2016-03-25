@@ -1,0 +1,1 @@
+paradigmcurve.com

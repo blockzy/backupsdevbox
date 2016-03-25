@@ -1,0 +1,1 @@
+gaycationmagazine.com
